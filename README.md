@@ -1,4 +1,4 @@
-# Aware
+# Aware Inc.
 
 ## Overview
 
